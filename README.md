@@ -78,4 +78,9 @@ Some of my favorites:
 * pineapple salmon ✅ 
 * breaded cod ✅ 
 
+<p align = "middle">
+ <img src="IMG-0178.jpg" style="width:35%; margin:auto; display:block">
+</p>
+
+###
 
