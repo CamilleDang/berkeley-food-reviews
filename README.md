@@ -23,7 +23,7 @@ I did catch a fly on one of the bagels though... #notrad.
 No picture was taken. Therefore, here is a picture of the store that I took from Google:
 
 <p align = "middle">
- <img src="./bagel.jpeg" style="width:30%; margin:auto; display:block">
+ <img src="./bagel.jpeg" style="width:35%; margin:auto; display:block">
 </p>
 
 ### Burma Superstar 💫 
@@ -36,6 +36,9 @@ I probably would go here again, but also, I might not.
 But again, it was quite enjoyable!
 Ja. ❤️ 
 
+<p align = "middle">
+ <img src="IMG-0651.jpeg" style="width:35%; margin:auto; display:block">
+</p>
 
 
 
