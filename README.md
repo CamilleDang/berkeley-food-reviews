@@ -106,9 +106,22 @@ Some of my favorites:
 ### Sourdough and Co 🥖 
 2509 Haste St, Berkeley, CA 94704
 
+### Bonchon Berkeley 🍗
+2050 Berkeley Way, Berkeley, CA 94704
+*Casual chain serving cooked-to-order Korean fried chicken, plus other traditional eats.*
+
 ### Alley Kitchens 🍜 
 2309 Telegraph Ave, Berkeley, CA 94704
 *Ramen, matcha & Japanese bites offered in snug surrounds inspired by Tokyo's street-food cafes.*
 
-### 
+### Gott's Roadside 🍔 
+One Ferry Building, The Embarcadero S, San Francisco, CA 94111
+*This retro eatery offers locally sourced burgers, fish tacos & beer, plus outdoor picnic tables.*
 
+### Humphry Slocombe 👅 
+One Ferry Building #8, San Francisco, CA 94111
+*Small shop selling ice cream made from high-end ingredients, including unusual flavors like cheese.*
+
+### Kimchi Garden 🪴 
+2517 Durant Ave suite B, Berkeley, CA 94704
+*Casual destination serving standard Korean noodle dishes, barbecue & kimchi in a cozy space.*
