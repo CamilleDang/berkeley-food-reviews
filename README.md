@@ -26,5 +26,18 @@ No picture was taken. Therefore, here is a picture of the store that I took from
  <img src="./bagel.jpeg" style="width:30%; margin:auto; display:block">
 </p>
 
+### Burma Superstar 💫 
+4721 Telegraph Ave, Oakland, CA 94609
+
+8/10
+This was one of the top-rated restaurants in Oakland. Jaja. #tbh had a quite emotional experience 💧 here as this was my last day with my dad before going off on my own...but it was a great place! We got really lucky with the lack of wait, and the waiters were very kind. 👄 For example, we ordered one of their signature salads, and they tossed it for us and made lovely conversation. 👏 
+The food was quite delicious, but not anything *crazy* good. Yes. But I very much enjoyed it!
+I probably would go here again, but also, I might not. 
+But again, it was quite enjoyable!
+Ja. ❤️ 
+
+
+
+
 
 
