@@ -3,6 +3,7 @@
 
 ### Almare Gelato Italiano 🍨 
 2170 Shattuck Ave., Berkeley, CA 94704
+
 *Lively treat spot serving updated old-world Italian gelato & sorbet flavors with vegan options.*
 
 10🌟/10
@@ -16,6 +17,7 @@ I must start off this ranking with my all-time favorite ice cream / gelato place
 
 ### Bagel Street Cafe 🥯 
 2148 Center St, Berkeley, CA 94704
+
 *Casual eatery serving a range of housemade bagels, coffee, sandwiches, salads & drinks.*
 
 8🌟/10
@@ -43,6 +45,7 @@ Ja. So I, like many others, quite *enjoy* boba. So, I knew I *had* to find a goo
 
 ### Burma Superstar 💫 
 4721 Telegraph Ave, Oakland, CA 94609
+
 *Relaxed eatery dishing up Burmese noodle, rice & meat dishes, plus vegetarian options.*
 
 8🌟/10
@@ -95,18 +98,22 @@ Some of my favorites:
 
 ### Yogurt Park 🍦 
 2433 Durant Ave A, Berkeley, CA 94704
+
 *Long-running (since 1977) shop, open late, offering frozen yogurt in simple digs.*
 
 ### Boba Ninja 🥷 
 2519 Durant Ave, Berkeley, CA 94704
+
 *Bubble tea store with popcorn chicken that's the bomb dot com*
 
 ### U-Cha 🕊 
 2199 Bancroft Way, Berkeley, CA 94720
+
 *Chill counter in a simple modern storefront for iced & bubble tea drinks with creative snacks.*
 
 ### Imm Thai Street Food 🥣 
 2068 University Ave, Berkeley, CA 94704
+
 *Thai street eats, plus beer & wine, in a buzzing, casual spot with understated decor.*
 
 ### Sourdough and Co 🥖 
@@ -114,26 +121,32 @@ Some of my favorites:
 
 ### Bonchon Berkeley 🍗
 2050 Berkeley Way, Berkeley, CA 94704
+
 *Casual chain serving cooked-to-order Korean fried chicken, plus other traditional eats.*
 
 ### Alley Kitchens 🍜 
 2309 Telegraph Ave, Berkeley, CA 94704
+
 *Ramen, matcha & Japanese bites offered in snug surrounds inspired by Tokyo's street-food cafes.*
 
 ### Gott's Roadside 🍔 
 One Ferry Building, The Embarcadero S, San Francisco, CA 94111
+
 *This retro eatery offers locally sourced burgers, fish tacos & beer, plus outdoor picnic tables.*
 
 ### Humphry Slocombe 👅 
 One Ferry Building #8, San Francisco, CA 94111
+
 *Small shop selling ice cream made from high-end ingredients, including unusual flavors like cheese.*
 
 ### Kimchi Garden 🪴 
 2517 Durant Ave suite B, Berkeley, CA 94704
+
 *Casual destination serving standard Korean noodle dishes, barbecue & kimchi in a cozy space.*
 
 ### Caffe Strada 🥪 
 2300 College Ave, Berkeley, CA 94704
+
 *Popular among students, this tree-shaded cafe provides a kick with coffee drinks, teas & pastries.*
 
 ### Sharetea 🫖 
@@ -144,18 +157,22 @@ One Ferry Building #8, San Francisco, CA 94111
 
 ### Top Dog 🌭 
 2534 Durant Ave, Berkeley, CA 94704
+
 *Quick-serve sausages including specialties & veggie options served in a minimalist setting.*
 
 ### Berkeley Social Club 🕺 
 2050 University Ave, Berkeley, CA 94704
+
 *Lively spot serving eclectic Asian-American fare with beer & wine in expansive quarters.*
 
 ### SoDoi Coffee Tasting House 🏡
 2438 Durant Ave, Berkeley, CA 94704
+
 *Airy, industrial stop with reclaimed wood tables & a bright wall mural serves caffeinated beverages.*
 
 ### Koo 🍣 
 408 Irving St, San Francisco, CA 94122
+
 *High-quality sushi & innovative grilled plates in basic digs with tables & sushi bar seating.*
 
 ### Ben & Jerry's 🧊 
