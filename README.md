@@ -1,5 +1,5 @@
 # Hello dogs! 🐕 
-## Welcome to a 99% honest (and very subjective!) ranking of Berkeley food places. ja bitte bb ⛅️ 
+## Welcome to a 99% honest (and very subjective!) ranking of Berkeley / NorCal food places. ja bitte bb ⛅️ 
 
 ### Almare Gelato 🍨 
 2170 Shattuck Ave., Berkeley, CA 94704
@@ -90,5 +90,17 @@ Some of my favorites:
 ### Yogurt Park 🍦 
 2433 Durant Ave A, Berkeley, CA 94704
 
+### Boba Ninja 🥷 
+2519 Durant Ave, Berkeley, CA 94704
 
+### U-Cha 🕊 
+2199 Bancroft Way, Berkeley, CA 94720
+
+### Imm Thai Street Food🥣 
+2068 University Ave, Berkeley, CA 94704
+
+### Sourdough and Co 🥖 
+2509 Haste St, Berkeley, CA 94704
+
+### 
 
