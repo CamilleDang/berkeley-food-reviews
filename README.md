@@ -89,18 +89,26 @@ Some of my favorites:
 
 ### Yogurt Park 🍦 
 2433 Durant Ave A, Berkeley, CA 94704
+*Long-running (since 1977) shop, open late, offering frozen yogurt in simple digs.*
 
 ### Boba Ninja 🥷 
 2519 Durant Ave, Berkeley, CA 94704
+*Bubble tea store with popcorn chicken that's the bomb dot com*
 
 ### U-Cha 🕊 
 2199 Bancroft Way, Berkeley, CA 94720
+*Chill counter in a simple modern storefront for iced & bubble tea drinks with creative snacks.*
 
 ### Imm Thai Street Food🥣 
 2068 University Ave, Berkeley, CA 94704
+*Thai street eats, plus beer & wine, in a buzzing, casual spot with understated decor.*
 
 ### Sourdough and Co 🥖 
 2509 Haste St, Berkeley, CA 94704
+
+### Alley Kitchens 🍜 
+2309 Telegraph Ave, Berkeley, CA 94704
+*Ramen, matcha & Japanese bites offered in snug surrounds inspired by Tokyo's street-food cafes.*
 
 ### 
 
