@@ -47,7 +47,7 @@ Ja. ❤️
 I don't go here often. Sometimes, the environment is very loud 👂 and overwhelming. However, the food is not too bad, and has many choices. Ja. If I had to pay full-price to go here, I would not step foot in the building. However, props to the chefs. 👩‍🍳 👨‍🍳 
 
 <p align = "middle">
- <img src="crossroads.jpeg" style="width:35%; margin:auto; display:block">
+ <img src="crossroads.jpeg.crdownload" style="width:35%; margin:auto; display:block">
 </p>
 
 
