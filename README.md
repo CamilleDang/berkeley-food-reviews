@@ -26,6 +26,12 @@ No picture was taken. Therefore, here is a picture of the store that I took from
  <img src="./bagel.jpeg" style="width:35%; margin:auto; display:block">
 </p>
 
+### Taiwan Professional Tea ☕️ 
+2383 Telegraph Ave, Berkeley, CA 94704
+
+9/10
+Ja. So I, like many others, quite *enjoy* boba. So, I knew I *had* to find a good boba place. This was recommended. And it was not too bad #bros! I actually really enjoyed it! Father and I shared a milk and fruit tea and interchanged them whenever we pleased, and it was quite a good combination, especially in conjunction with the view of the Berkeley marina (which is where we drove to). Ja bitte. I like it. It's a Yes. I guess. No. I know. ✔️ 
+
 ### Burma Superstar 💫 
 4721 Telegraph Ave, Oakland, CA 94609
 
