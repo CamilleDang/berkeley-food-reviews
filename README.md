@@ -37,10 +37,16 @@ But again, it was quite enjoyable!
 Ja. ❤️ 
 
 <p align = "middle">
- <img src="IMG-0651.jpeg" style="width:35%; margin:auto; display:block">
+ <img src="IMG-9668.jpg" style="width:35%; margin:auto; display:block">
 </p>
 
+### Cafe 3 🥕 
+2400 Durant Ave, Berkeley, CA 94704
 
+6/10
+Listen. It's definitely a hit or miss... but also, I've been able to eat in Cafe 3 for free this entire summer. Therefore, I am choosing to focus on the positives.
+Some of my favorites:
+* grilled broccoli
 
 
 
