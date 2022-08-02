@@ -7,6 +7,11 @@
 10🌟/10
 I must start off this ranking with my all-time favorite ice cream / gelato place ever. Jaja. Almare *never* misses. Firstly, it is such a cool, cute shop with rotating gelato flavors (my personal favorite: strawberry + ube!). The fruit sorbet are incredibly fresh, and the gelato is so creamy and delicious. Not to mention, it is **so** worth the buckaroos 💴! They pack the cup, and allow you to mix and match flavors to your desire, even down to the ratios! The location is also Downtown and is very lovely. It's also right next to the hearty BART, so if you're feeling a bit snacky after a BART 🚊 ride, you will go here. Yes you will. 
 
+<p align="middle">
+  <img src="/IMG-9619.jpg" width="300" />
+  <img src="/IMG-0651.jpg" width="300" /> 
+</p>
+
 ### Bagel Street Cafe 🥯 
 2148 Center St, Berkeley, CA 94704
 
@@ -17,5 +22,9 @@ I did catch a fly on one of the bagels though... #notrad.
 
 No picture was taken. Therefore, here is a picture of the store that I took from Google:
 
+<p align = "middle">
  <img src="./bagel.jpeg" style="width:30%; margin:auto; display:block">
+</p>
+
+
 
