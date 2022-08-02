@@ -9,3 +9,5 @@ The location is very rad and convenient, and is a great place to grab a quick br
 I enjoyed the lox bagel. It was definitely worth the money 💰. It was so much that I had to ask my father to finish it. The second bagel was simply an everything bagel with cream cheese. Yum! 
 I did catch a fly on one of the bagels though... #notrad.
 
+No picture was taken. Therefore, here is a picture of the store that I took from Google:
+
