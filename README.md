@@ -1,8 +1,9 @@
 # Hello dogs! 🐕 
 ## Welcome to a 99% honest (and very subjective!) ranking of Berkeley / NorCal food places. ja bitte bb ⛅️ 
 
-### Almare Gelato 🍨 
+### Almare Gelato Italiano 🍨 
 2170 Shattuck Ave., Berkeley, CA 94704
+*Lively treat spot serving updated old-world Italian gelato & sorbet flavors with vegan options.*
 
 10🌟/10
 
@@ -15,6 +16,7 @@ I must start off this ranking with my all-time favorite ice cream / gelato place
 
 ### Bagel Street Cafe 🥯 
 2148 Center St, Berkeley, CA 94704
+*Casual eatery serving a range of housemade bagels, coffee, sandwiches, salads & drinks.*
 
 8🌟/10
 
@@ -41,6 +43,7 @@ Ja. So I, like many others, quite *enjoy* boba. So, I knew I *had* to find a goo
 
 ### Burma Superstar 💫 
 4721 Telegraph Ave, Oakland, CA 94609
+*Relaxed eatery dishing up Burmese noodle, rice & meat dishes, plus vegetarian options.*
 
 8🌟/10
 
@@ -99,7 +102,7 @@ Some of my favorites:
 2199 Bancroft Way, Berkeley, CA 94720
 *Chill counter in a simple modern storefront for iced & bubble tea drinks with creative snacks.*
 
-### Imm Thai Street Food🥣 
+### Imm Thai Street Food 🥣 
 2068 University Ave, Berkeley, CA 94704
 *Thai street eats, plus beer & wine, in a buzzing, casual spot with understated decor.*
 
@@ -125,3 +128,5 @@ One Ferry Building #8, San Francisco, CA 94111
 ### Kimchi Garden 🪴 
 2517 Durant Ave suite B, Berkeley, CA 94704
 *Casual destination serving standard Korean noodle dishes, barbecue & kimchi in a cozy space.*
+
+### 
