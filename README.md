@@ -11,3 +11,4 @@ I did catch a fly on one of the bagels though... #notrad.
 
 No picture was taken. Therefore, here is a picture of the store that I took from Google:
 
+ <img src="./bagel.JPG" style="width:50%; margin:auto; display:block">
