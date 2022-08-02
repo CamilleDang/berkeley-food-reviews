@@ -40,6 +40,15 @@ Ja. ❤️
  <img src="IMG-9668.jpg" style="width:35%; margin:auto; display:block">
 </p>
 
+### Crossroads 🚗 
+2415 Bowditch St, Berkeley, CA 94720
+
+7/10
+I don't go here often. Sometimes, the environment is very loud 👂 and overwhelming. However, the food is not too bad, and has many choices. Ja. If I had to pay to go here, I would not step in the building. However, props to the chefs. 👩‍🍳 👨‍🍳 
+
+
+
+
 ### Cafe 3 🥕 
 2400 Durant Ave, Berkeley, CA 94704
 
@@ -47,6 +56,7 @@ Ja. ❤️
 Listen. It's definitely a hit or miss... but also, I've been able to eat in Cafe 3 for free this entire summer. Therefore, I am choosing to focus on the positives.
 Some of my favorites:
 * grilled broccoli
-
-
+* soyrizo + brown rice
+* pineapple salmon
+* 
 
