@@ -90,6 +90,9 @@ Some of my favorites:
 
 8🌟/10
 
+### Dumpling Kitchen 🥟 
+2517 Durant Ave Ste A, Berkeley, CA 94704
+
 ### Yogurt Park 🍦 
 2433 Durant Ave A, Berkeley, CA 94704
 *Long-running (since 1977) shop, open late, offering frozen yogurt in simple digs.*
@@ -129,4 +132,34 @@ One Ferry Building #8, San Francisco, CA 94111
 2517 Durant Ave suite B, Berkeley, CA 94704
 *Casual destination serving standard Korean noodle dishes, barbecue & kimchi in a cozy space.*
 
-### 
+### Caffe Strada 🥪 
+2300 College Ave, Berkeley, CA 94704
+*Popular among students, this tree-shaded cafe provides a kick with coffee drinks, teas & pastries.*
+
+### Sharetea 🫖 
+2328 Telegraph Ave, Berkeley, CA 94704
+
+### Pla Daek Thai Esan Food 🥘 
+4133 Piedmont Ave, Oakland, CA 94611
+
+### Top Dog 🌭 
+2534 Durant Ave, Berkeley, CA 94704
+*Quick-serve sausages including specialties & veggie options served in a minimalist setting.*
+
+### Berkeley Social Club 🕺 
+2050 University Ave, Berkeley, CA 94704
+*Lively spot serving eclectic Asian-American fare with beer & wine in expansive quarters.*
+
+### SoDoi Coffee Tasting House 🏡
+2438 Durant Ave, Berkeley, CA 94704
+*Airy, industrial stop with reclaimed wood tables & a bright wall mural serves caffeinated beverages.*
+
+### Koo 🍣 
+408 Irving St, San Francisco, CA 94122
+*High-quality sushi & innovative grilled plates in basic digs with tables & sushi bar seating.*
+
+### Ben & Jerry's 🧊 
+2130 Center St Suite 102, Berkeley, CA 94704
+*Iconic Vermont-based ice cream parlor chain, known for its creative, cleverly named flavors.*
+
+
