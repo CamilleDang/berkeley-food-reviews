@@ -184,6 +184,7 @@ I heard Good 👍 reviews about this place, and it was quite lovely!! Parking is
 <p align="middle">
   <img src="/IMG-9619.jpg" width="300" />
   <img src="/IMG-0651.jpg" width="300" /> 
+  <img src="/IMG-0651.jpg" width="300" /> 
 </p>
 
 ### SoDoi Coffee Tasting House 🏡
