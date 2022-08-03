@@ -127,72 +127,104 @@ Yoo sup bros. This was one of my first times using #Snackpass, and I thought it 
 
 *Long-running (since 1977) shop, open late, offering frozen yogurt in simple digs.*
 
+9🌟/10 
+
 ### Boba Ninja 🥷 
 2519 Durant Ave, Berkeley, CA 94704
 
 *Bubble tea store with popcorn chicken that's the bomb dot com*
+
+10🌟/10 
 
 ### U-Cha 🕊 
 2199 Bancroft Way, Berkeley, CA 94720
 
 *Chill counter in a simple modern storefront for iced & bubble tea drinks with creative snacks.*
 
+9🌟/10 
+
 ### Imm Thai Street Food 🥣 
 2068 University Ave, Berkeley, CA 94704
 
 *Thai street eats, plus beer & wine, in a buzzing, casual spot with understated decor.*
 
+8🌟/10 
+
 ### Sourdough and Co 🥖 
 2509 Haste St, Berkeley, CA 94704
+
+8🌟/10 
 
 ### Bonchon Berkeley 🍗
 2050 Berkeley Way, Berkeley, CA 94704
 
 *Casual chain serving cooked-to-order Korean fried chicken, plus other traditional eats.*
 
+7🌟/10 
+
 ### Alley Kitchens 🍜 
 2309 Telegraph Ave, Berkeley, CA 94704
 
 *Ramen, matcha & Japanese bites offered in snug surrounds inspired by Tokyo's street-food cafes.*
+
+8🌟/10 
 
 ### Gott's Roadside 🍔 
 One Ferry Building, The Embarcadero S, San Francisco, CA 94111
 
 *This retro eatery offers locally sourced burgers, fish tacos & beer, plus outdoor picnic tables.*
 
+8🌟/10 
+
 ### Humphry Slocombe 👅 
 One Ferry Building #8, San Francisco, CA 94111
 
 *Small shop selling ice cream made from high-end ingredients, including unusual flavors like cheese.*
+
+10🌟/10 
 
 ### Kimchi Garden 🪴 
 2517 Durant Ave suite B, Berkeley, CA 94704
 
 *Casual destination serving standard Korean noodle dishes, barbecue & kimchi in a cozy space.*
 
+7🌟/10 
+
 ### Caffe Strada 🥪 
 2300 College Ave, Berkeley, CA 94704
 
 *Popular among students, this tree-shaded cafe provides a kick with coffee drinks, teas & pastries.*
 
+9🌟/10 
+
 ### Sharetea 🫖 
 2328 Telegraph Ave, Berkeley, CA 94704
+
+7🌟/10 
 
 ### Purple Kow 🐄 
 2164 Center St, Berkeley, CA 94704
 
 *Asian-influenced sweets menu featuring flavored teas, jelly drinks & assorted snacks & desserts.*
 
+8🌟/10 
+
 ### Pla Daek Thai Esan Food 🥘 
 4133 Piedmont Ave, Oakland, CA 94611
+
+10🌟/10 
 
 ### Top Dog 🌭 
 2534 Durant Ave, Berkeley, CA 94704
 
 *Quick-serve sausages including specialties & veggie options served in a minimalist setting.*
 
+9🌟/10 
+
 ### Hui Lau Shan 🥭 
 2282 Fulton St, Berkeley, CA 94704
+
+8🌟/10 
 
 ### Berkeley Social Club 🕺 
 2050 University Ave, Berkeley, CA 94704
@@ -214,14 +246,20 @@ I heard Good 👍 reviews about this place, and it was quite lovely!! Parking is
 
 *Airy, industrial stop with reclaimed wood tables & a bright wall mural serves caffeinated beverages.*
 
+9🌟/10 
+
 ### Koo 🍣 
 408 Irving St, San Francisco, CA 94122
 
 *High-quality sushi & innovative grilled plates in basic digs with tables & sushi bar seating.*
 
+9🌟/10 
+
 ### Ben & Jerry's 🧊 
 2130 Center St Suite 102, Berkeley, CA 94704
 
 *Iconic Vermont-based ice cream parlor chain, known for its creative, cleverly named flavors.*
+
+5🌟/10 
 
 
