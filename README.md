@@ -1,5 +1,5 @@
 # Hello dogs! 🐕 
-## Welcome to a 99% honest (and very subjective!) ranking of Berkeley / NorCal food places. ja bitte bb ⛅️ 
+## An 💯% honest (and very subjective!) ranking of Berkeley / NorCal food places. ja bitte bb ⛅️ 
 
 ### Almare Gelato Italiano 🍨 
 2170 Shattuck Ave., Berkeley, CA 94704
@@ -91,10 +91,14 @@ Some of my favorites:
 ### Riceful Onigiri 🍙 
 2435 Durant Ave, Berkeley, CA 94704
 
-8🌟/10
+9🌟/10
+
+Yes. Very much so! I love this place. It's quick and convenient, and mighty tasty. 👅  I love spamisubi, but I only rarely ate it back at home. This is spamisubi with a twist! 👏 Jaja. I've gone here probably 4 times already, and I've had the pork katsu and shrimp 🍤 . They are both very delicious, and I am definitely coming back.
 
 ### Dumpling Kitchen 🥟 
 2517 Durant Ave Ste A, Berkeley, CA 94704
+
+6🌟/10
 
 ### Yogurt Park 🍦 
 2433 Durant Ave A, Berkeley, CA 94704
@@ -152,6 +156,11 @@ One Ferry Building #8, San Francisco, CA 94111
 ### Sharetea 🫖 
 2328 Telegraph Ave, Berkeley, CA 94704
 
+### Purple Kow 🐄 
+2164 Center St, Berkeley, CA 94704
+
+*Asian-influenced sweets menu featuring flavored teas, jelly drinks & assorted snacks & desserts.*
+
 ### Pla Daek Thai Esan Food 🥘 
 4133 Piedmont Ave, Oakland, CA 94611
 
@@ -159,6 +168,9 @@ One Ferry Building #8, San Francisco, CA 94111
 2534 Durant Ave, Berkeley, CA 94704
 
 *Quick-serve sausages including specialties & veggie options served in a minimalist setting.*
+
+### Hui Lau Shan 🥭 
+2282 Fulton St, Berkeley, CA 94704
 
 ### Berkeley Social Club 🕺 
 2050 University Ave, Berkeley, CA 94704
