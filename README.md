@@ -182,9 +182,9 @@ One Ferry Building #8, San Francisco, CA 94111
 I heard Good 👍 reviews about this place, and it was quite lovely!! Parking is quite the nightmare around this area, but the food was simply delightful! Pancakes 🥞, strawberry 🍓 avocado 🥑 toast, bulgogi rice bowl, beautiful candied bacon 🥓 , fried chicken salad...there was just so much! And they were all finger-licking #delicious. Would definitely go here again (given the money and chance)!
 
 <p align="middle">
-  <img src="./IMG-0731.jpg" style="width:35%; margin:auto; display:block">
-  <img src="./IMG-0732.jpg" style="width:35%; margin:auto; display:block">
-  <img src="./IMG-0733.jpg" style="width:35%; margin:auto; display:block">
+  <img src="./IMG-0731.jpg" style="width:30%; margin:auto; display:block">
+  <img src="./IMG-0732.jpg" style="width:30%; margin:auto; display:block">
+  <img src="./IMG-0733.jpg" style="width:30%; margin:auto; display:block">
 </p>
 
 ### SoDoi Coffee Tasting House 🏡
