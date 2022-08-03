@@ -104,7 +104,7 @@ Some of my favorites:
 Yes. Very much so! I love this place. It's quick and convenient, and mighty tasty. 👅  I love spamisubi, but I only rarely ate it back at home. This is spamisubi with a twist! 👏 Jaja. I've gone here probably 4 times already, and I've had the pork katsu and shrimp 🍤 . They are both very delicious, and I am definitely coming back. 🦀 
 
 <p align = "middle">
- <img src="IMG-0178.jpg" style="width:35%; margin:auto; display:block">
+ <img src="IMG-0458.jpg" style="width:35%; margin:auto; display:block">
 </p>
 
 ### Dumpling Kitchen 🥟 
@@ -114,7 +114,7 @@ Yes. Very much so! I love this place. It's quick and convenient, and mighty tast
 
 6🌟/10
 
-Yoo sup bros. This was one of my first times using #Snackpass, and I thought it was not too bad, but I wouldn't go here...again. Jaja. Sorry ❤️; it was pretty solid fried gyoza, but the soup dumplings 🥟  were, as the kids say, a bit "mid." I also ordered some seaweed salad, which wasn't bad. But it wasn't phenomenal. All love and peace. ☮️ I enjoyed it. Jaja.
+Yoo sup bros. This was one of my first times using #Snackpass, and I thought it was not too bad, but I wouldn't go here...again. Jaja. Sorry ❤️; it was pretty solid fried gyoza, but the soup dumplings 🥟  were, as the kids say, a bit "mid." I also ordered some seaweed salad, which wasn't bad. But it wasn't phenomenal. All love and peace. ☮️ I enjoyed it. Jaja. Both of these pictures are taken from Google. Unfortunately, I did not capture any pictures of any of the food.
 
 <p align="middle">
   <img src="./dumplings.webp" style="width:35%; margin:auto; display:block">
