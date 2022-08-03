@@ -35,7 +35,7 @@ No picture was taken. Therefore, here is a picture of the store that I took from
 ### Taiwan Professional Tea ☕️ 
 2383 Telegraph Ave, Berkeley, CA 94704
 
-9🌟/10
+8🌟/10
 
 Ja. So I, like many others, quite *enjoy* boba. So, I knew I *had* to find a good boba place. This was recommended. And it was not too bad #bros! I actually really enjoyed it! Father and I shared a milk and fruit tea and interchanged them whenever we pleased, and it was quite a good combination, especially in conjunction with the view of the Berkeley marina (which is where we drove to). I also went here later with Mother, and we both quite Enjoyed it. Ja bitte. I like it. It's a Yes. I guess. No. I know. ✔️  For some reason, I did not take a picture (of either times), but I will be including a pleasing picture from the interweb. 
 
@@ -63,6 +63,8 @@ Ja. ❤️
 ### Crossroads 🚗 
 2415 Bowditch St, Berkeley, CA 94720
 
+*UC Berkeley Dining Hall*
+
 7🌟/10
 
 I don't go here often. Sometimes, the environment is very loud 👂 and overwhelming. However, the food is not too bad, and has many choices. Ja. If I had to pay full-price to go here, I would not step foot in the building. However, props to the chefs. 👩‍🍳 👨‍🍳 
@@ -75,13 +77,18 @@ I don't go here often. Sometimes, the environment is very loud 👂 and overwhel
 ### Cafe 3 🥕 
 2400 Durant Ave, Berkeley, CA 94704
 
+*UC Berkeley Dining Hall*
+
 6🌟/10
 
 Listen. It's definitely a hit or miss... 🎯 but also, I've been able to eat in Cafe 3 for free this entire summer. Therefore, I am choosing to focus on the positives. 
 Some of my favorites:
 ✅ grilled broccoli 🥦 
+
 ✅ soyrizo scramble + brown rice 🍚 
+
 ✅ pineapple salmon🎣 
+
 ✅ breaded cod 🐠 
 
 <p align = "middle">
@@ -93,7 +100,7 @@ Some of my favorites:
 
 9🌟/10
 
-Yes. Very much so! I love this place. It's quick and convenient, and mighty tasty. 👅  I love spamisubi, but I only rarely ate it back at home. This is spamisubi with a twist! 👏 Jaja. I've gone here probably 4 times already, and I've had the pork katsu and shrimp 🍤 . They are both very delicious, and I am definitely coming back.
+Yes. Very much so! I love this place. It's quick and convenient, and mighty tasty. 👅  I love spamisubi, but I only rarely ate it back at home. This is spamisubi with a twist! 👏 Jaja. I've gone here probably 4 times already, and I've had the pork katsu and shrimp 🍤 . They are both very delicious, and I am definitely coming back. 🦀 
 
 ### Dumpling Kitchen 🥟 
 2517 Durant Ave Ste A, Berkeley, CA 94704
@@ -179,7 +186,7 @@ One Ferry Building #8, San Francisco, CA 94111
 
 9🌟/10
 
-I heard Good 👍 reviews about this place, and it was quite lovely!! Parking is quite the nightmare around this area, but the food was simply delightful! Pancakes 🥞, strawberry 🍓 avocado 🥑 toast, bulgogi rice bowl, beautiful candied bacon 🥓 , fried chicken salad...there was just so much! And they were all finger-licking #delicious. Would definitely go here again (given the money and chance)!
+I heard Good 👍 reviews about this place, and it was quite lovely!! Parking is quite the nightmare around this area, but the food was simply delightful! Pancakes 🥞, strawberry 🍓 avocado 🥑 toast, bulgogi rice bowl, beautiful candied bacon 🥓 , fried chicken salad...there was just so much! And they were all finger-licking #delicious. Would definitely go here again (given the bucks and the chance)!
 
 <p align="middle">
   <img src="./IMG-0731.jpg" style="width:30%; margin:auto; display:block">
