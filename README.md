@@ -112,6 +112,10 @@ Yes. Very much so! I love this place. It's quick and convenient, and mighty tast
 
 Yoo sup bros. This was one of my first times using #Snackpass, and I thought it was not too bad, but I wouldn't go here...again. Jaja. Sorry ❤️; it was pretty solid fried gyoza, but the soup dumplings 🥟  were, as the kids say, a bit "mid." I also ordered some seaweed salad, which wasn't bad. But it wasn't phenomenal. All love and peace. ☮️ I enjoyed it. Jaja.
 
+<p align="middle">
+  <img src="./dumplings.webp" style="width:35%; margin:auto; display:block">
+  <img src="./dumpling.jpeg" style="width:35%; margin:auto; display:block">
+</p>
 
 
 ### Yogurt Park 🍦 
