@@ -83,6 +83,7 @@ I don't go here often. Sometimes, the environment is very loud 👂 and overwhel
 
 Listen. It's definitely a hit or miss... 🎯 but also, I've been able to eat in Cafe 3 for free this entire summer. Therefore, I am choosing to focus on the positives. 
 Some of my favorites:
+
 ✅ grilled broccoli 🥦 
 
 ✅ soyrizo scramble + brown rice 🍚 
@@ -105,7 +106,13 @@ Yes. Very much so! I love this place. It's quick and convenient, and mighty tast
 ### Dumpling Kitchen 🥟 
 2517 Durant Ave Ste A, Berkeley, CA 94704
 
+*Dim sum for take-out*
+
 6🌟/10
+
+Yoo sup bros. This was one of my first times using #Snackpass, and I thought it was not too bad, but I wouldn't go here...again. Jaja. Sorry ❤️; it was pretty solid fried gyoza, but the soup dumplings 🥟  were, as the kids say, a bit "mid." I also ordered some seaweed salad, which wasn't bad. But it wasn't phenomenal. All love and peace. ☮️ I enjoyed it. Jaja.
+
+
 
 ### Yogurt Park 🍦 
 2433 Durant Ave A, Berkeley, CA 94704
