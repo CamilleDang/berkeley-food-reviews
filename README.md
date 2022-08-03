@@ -37,7 +37,7 @@ No picture was taken. Therefore, here is a picture of the store that I took from
 
 8🌟/10
 
-Ja. So I, like many others, quite *enjoy* boba. So, I knew I *had* to find a good boba place. This was recommended. And it was not too bad #bros! I actually really enjoyed it! Father and I shared a milk and fruit tea and interchanged them whenever we pleased, and it was quite a good combination, especially in conjunction with the view of the Berkeley marina (which is where we drove to). I also went here later with Mother, and we both quite Enjoyed it. Ja bitte. I like it. It's a Yes. I guess. No. I know. ✔️  For some reason, I did not take a picture (of either times), but I will be including a pleasing picture from the interweb. 
+Ja. So I, like many others, quite *enjoy* boba. 🧋 So, I knew I *had* to find a good boba place. This was recommended. And it was not too bad #bros! I actually really enjoyed it! Father and I shared a milk and fruit tea and interchanged them whenever we pleased, and it was quite a good combination, especially in conjunction with the view 📷 of the Berkeley marina (which is where we drove to). I also went here later with Mother, and we both quite Enjoyed it. Ja bitte. I like it. It's a Yes. I guess. No. I know. ✔️  For some reason, I did not take a picture (of either times), but I will be including a pleasing picture from the interweb. 
 
 <p align = "middle">
  <img src="./tptea.jpeg" style="width:35%; margin:auto; display:block">
