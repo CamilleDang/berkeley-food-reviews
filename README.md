@@ -103,6 +103,10 @@ Some of my favorites:
 
 Yes. Very much so! I love this place. It's quick and convenient, and mighty tasty. 👅  I love spamisubi, but I only rarely ate it back at home. This is spamisubi with a twist! 👏 Jaja. I've gone here probably 4 times already, and I've had the pork katsu and shrimp 🍤 . They are both very delicious, and I am definitely coming back. 🦀 
 
+<p align = "middle">
+ <img src="IMG-0178.jpg" style="width:35%; margin:auto; display:block">
+</p>
+
 ### Dumpling Kitchen 🥟 
 2517 Durant Ave Ste A, Berkeley, CA 94704
 
