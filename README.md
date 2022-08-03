@@ -8,7 +8,7 @@
 
 10🌟/10
 
-I must start off this ranking with my all-time favorite ice cream / gelato place ever. Jaja. Almare *never* misses. Firstly, it is such a cool, cute shop with rotating gelato flavors (my personal favorite: strawberry + ube!). The fruit sorbet are incredibly fresh, and the gelato is so creamy and delicious. Not to mention, it is **so** worth the buckaroos 💴! They pack the cup, and allow you to mix and match flavors to your desire, even down to the ratios! The location is also Downtown and is very lovely. It's also right next to the hearty BART, so if you're feeling a bit snacky after a BART 🚊 ride, you will go here. Yes you will. 
+I must start off this ranking with my all-time favorite ice cream / gelato place ever. Jaja. Almare *never* misses. Firstly, it is such a cool, cute shop with rotating gelato flavors (my personal favorite: strawberry 🍓  + ube 🍠 !). The fruit sorbet are incredibly fresh, and the gelato is so creamy and delicious. Not to mention, it is **so** worth the buckaroos 💴! They pack the cup, and allow you to mix and match flavors to your desire, even down to the ratios! The location is also Downtown and is very lovely. It's also right next to the hearty BART, so if you're feeling a bit snacky after a BART 🚊 ride, you will go here. Yes you will. 
 
 <p align="middle">
   <img src="./IMG-9619.jpg" style="width:35%; margin:auto; display:block">
@@ -194,6 +194,8 @@ One Ferry Building #8, San Francisco, CA 94111
 2300 College Ave, Berkeley, CA 94704
 
 *Popular among students, this tree-shaded cafe provides a kick with coffee drinks, teas & pastries.*
+
+I quite love 💕  Caffe Strada! Truly! I first went here for "Coffee Chats" with my Data 6 instructor 👑 
 
 9🌟/10 
 
