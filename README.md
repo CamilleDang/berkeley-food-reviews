@@ -129,6 +129,8 @@ Yoo sup bros. This was one of my first times using #Snackpass, and I thought it 
 
 9🌟/10 
 
+Jaja I definitely recommend! Although I have not been here much, this is simply such a wonderful little shop! The fro-yo flavors are so tasty 👅, the service is quick 🏃‍♀️🏃‍♂️, and it is the perfect post-meal snack / dessert 🧁. The flavors are much richer and quite different from the traditional fro-yo chains like "YogurtLand" or "PinkBerry." 💗 
+
 ### Boba Ninja 🥷 
 2519 Durant Ave, Berkeley, CA 94704
 
@@ -264,4 +266,11 @@ I heard Good 👍 reviews about this place, and it was quite lovely!! Parking is
 
 5🌟/10 
 
+### 
+
+### Dumpling 🥟 
+
+### Boba Guys
+
+### Chowders 🥖 
 
